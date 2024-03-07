@@ -1,2 +1,3 @@
 # pre_semin
-qawsdfgko
+qawsdfgxd
+jijijija
